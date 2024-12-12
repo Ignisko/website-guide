@@ -24,7 +24,7 @@ level up again
 2021. washing machines service. wash&co. website online. learning aws. first customers failed business. website workedw ith bookings though
 made it strasbourg. europarlaiment, cool. too much burearacy. enough.
 2022. made it to usa. finally. sleep uc failed interview with peking. ranch is so much work. little sleep. surfboarding rental failed.
-txt with un. nyc seems far for a date
+txt with un girl. nyc seems far for a date
  go to canada visa expired. made it to ubc in vancity but cou;d not transfer vegas and nys lost all money. 
  transwef irland emergency. back home to conitnue working with polsa.
  can't afford meetups. want to organize projects and lead but can't afford transport and sleep. made it council but no sleep whole night walking around/ have to resign. pff
